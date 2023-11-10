@@ -11,5 +11,5 @@ after so many years of sunshine harison got a shock
 he acted as if he had never lived in the england before
 in the end it was more than he could bear
 he had hardly had time to sellted down when he soled the house and left the country
-the dream he had had for so many years ended there\
+the dream he had had for so many years ended there
 harison had thought everything and except the weather
